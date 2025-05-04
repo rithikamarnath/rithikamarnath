@@ -2,7 +2,7 @@
 - 👀 I’m interested in Physics
 - 🌱 I’m currently learning Java script
 - 💞️ I’m looking to collaborate on an app
-- 📫 How to reach me - Youtube , Rithikamarnath.com , Https://wizards-things-collection.b12sites.com
+- 📫 How to reach me - https://www.youtube.com , https://www.rithikamarnath.com , Https://wizards-things-collection.b12sites.com
 - 😄 Pronouns: Anything
 - ⚡ Fun fact: ⚡Fast and smart📚💡✨
 
